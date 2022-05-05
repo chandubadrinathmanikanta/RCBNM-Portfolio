@@ -5,7 +5,7 @@ Edited by Sunwoo Kang
 Merged CEEVEE with KARDS from Styleshouts :) 
 
 
-For any questions on starting a personal website for resume, please contact swkang73@stanford.edu / sunnybd97@gmail.com. 
+For any questions on starting a personal website for resume, please contact chandubadrinath_r@srmap.edu.in / chandubnm.ramanadham@gmail.com. 
 
 SOURCES AND CREDITS:
 
