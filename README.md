@@ -1,7 +1,7 @@
 # Personal Website Resume for Computer Science 
 
 
-Edited by Sunwoo Kang
+Edited by CHANDU BADRINATH MANIKANTA RAMANADHAM
 Merged CEEVEE with KARDS from Styleshouts :) 
 
 
